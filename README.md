@@ -1,1 +1,0 @@
-# sad-26-27-tarea-inicial-individual-asadullahzaman2-sudo
